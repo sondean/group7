@@ -1,1 +1,2 @@
-# group7
+# Nguyen Dong Thai Son
+![]images/DUY08184.jpg
